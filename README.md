@@ -1,0 +1,1 @@
+luck favours those who work!
